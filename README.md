@@ -1,0 +1,1 @@
+# kurmanaruto7-lang.github.io
